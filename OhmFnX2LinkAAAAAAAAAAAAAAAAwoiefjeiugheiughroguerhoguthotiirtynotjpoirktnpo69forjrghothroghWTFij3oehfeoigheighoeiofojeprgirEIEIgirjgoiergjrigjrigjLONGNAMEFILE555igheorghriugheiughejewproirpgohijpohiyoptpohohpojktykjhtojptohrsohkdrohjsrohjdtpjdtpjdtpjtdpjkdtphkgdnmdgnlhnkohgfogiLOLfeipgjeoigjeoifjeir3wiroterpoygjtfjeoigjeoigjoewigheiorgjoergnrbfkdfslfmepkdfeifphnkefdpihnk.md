@@ -1,7 +1,7 @@
 # OhmFn X2 Social Link
 ### Longggggggggggggggggggggggggggggggggg Link
 ## My Link
-Twitter - https://twitter.com/OhmfnX
+Twitter - https://twitter.com/OhmfnX \n
 Youtube - https://www.youtube.com/channel/UCBPWrkeS8Rh90d_IHbpespQ
 Spotify - https://open.spotify.com/artist/1PZ1GKlme4JLWS2dbsnP8W
 Apple Music - https://music.apple.com/th/artist/ohmfn-x2/1535951981
