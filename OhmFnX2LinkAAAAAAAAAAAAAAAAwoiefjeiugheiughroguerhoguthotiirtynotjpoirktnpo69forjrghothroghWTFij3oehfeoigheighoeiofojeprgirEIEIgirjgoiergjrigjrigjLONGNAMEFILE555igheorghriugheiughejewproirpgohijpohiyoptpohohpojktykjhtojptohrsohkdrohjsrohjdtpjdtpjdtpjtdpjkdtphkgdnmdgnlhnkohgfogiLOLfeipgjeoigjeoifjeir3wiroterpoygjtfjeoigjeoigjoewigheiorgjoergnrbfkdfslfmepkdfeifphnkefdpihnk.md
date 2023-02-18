@@ -20,6 +20,6 @@
 ##### ถ้วยน้ำชาที่ว่างปล่าว - https://ohmfnx2featunlockstepper.streamlink.to/emptyteacup (2020)
 ##### Lazy - https://ohmfnx2.streamlink.to/lazy (2020)
 ##### Stroy - https://ohmfnx2.streamlink.to/stroy (2020)
-##### Music Happy - https://soundcloud.com/ohmfnx2/is-all-happy (2019)
+##### Music Happy - https://ohmfnx2.streamlink.to/musichappy (2019)
 ## My Remix Music
 ##### TDPMS. - KPOP (PROD.TDPMS)[OhmFn X2 Flip]{KHOUSE} - https://ohmfnx2.streamlink.to/kpop-khouse (2022)
