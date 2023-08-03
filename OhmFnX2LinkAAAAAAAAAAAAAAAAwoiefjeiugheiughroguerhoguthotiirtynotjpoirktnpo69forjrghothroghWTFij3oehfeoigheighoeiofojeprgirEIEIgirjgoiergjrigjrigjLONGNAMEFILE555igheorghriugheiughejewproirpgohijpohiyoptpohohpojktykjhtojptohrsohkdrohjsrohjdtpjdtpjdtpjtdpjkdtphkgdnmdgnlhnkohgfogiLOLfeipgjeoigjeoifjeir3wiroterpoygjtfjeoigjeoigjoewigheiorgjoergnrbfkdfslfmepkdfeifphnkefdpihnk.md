@@ -11,6 +11,8 @@
 ##### Youtube Play TH (Thai Language Speak Only) - https://www.youtube.com/@ohmfnx2playth
 ##### Bandcamp - https://ohmfnx2.bandcamp.com
 ## My Music
+##### You Die Inside - https://ohmfnx2.streamlink.to/youdieinside (2023)
+##### ทุกสิ่งทุกอย่างต้องเป็นเสียง Noise - https://ohmfnx2.streamlink.to/everythingisnoise (2023)
 ##### บ้านไม่มีประตู - https://ohmfnx2.streamlink.to/housenothavedoor (2023)
 ##### Music for Creater, Vol. 1 - https://ohmfnx2.streamlink.to/MusicforCreaterVol1 (2023)
 ##### Feel Down - https://ohmfnx2.streamlink.to/feeldown (2023)
