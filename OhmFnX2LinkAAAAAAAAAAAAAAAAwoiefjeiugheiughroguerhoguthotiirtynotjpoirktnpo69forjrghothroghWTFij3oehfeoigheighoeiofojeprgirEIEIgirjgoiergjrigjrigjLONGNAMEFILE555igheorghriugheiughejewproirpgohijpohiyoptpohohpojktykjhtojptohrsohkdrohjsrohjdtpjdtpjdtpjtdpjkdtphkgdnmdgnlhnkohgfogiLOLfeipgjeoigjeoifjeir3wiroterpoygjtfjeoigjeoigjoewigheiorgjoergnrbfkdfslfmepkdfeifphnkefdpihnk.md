@@ -7,7 +7,7 @@
 ##### Spotify - https://open.spotify.com/artist/1PZ1GKlme4JLWS2dbsnP8W
 ##### Apple Music - https://music.apple.com/th/artist/ohmfn-x2/1535951981
 ##### deezer - https://www.deezer.com/th/artist/110239152
-##### soundcloud - https://https://on.soundcloud.com/RGD52
+##### soundcloud - https://on.soundcloud.com/RGD52
 ##### Youtube Topic - https://www.youtube.com/channel/UCVgUg-1Vnb9okfVnh8JONZA
 ##### Youtube Play TH (Thai Language Speak Only) - https://www.youtube.com/@ohmfnx2playth
 ##### Bandcamp - https://ohmfnx2.bandcamp.com
